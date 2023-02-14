@@ -6,4 +6,4 @@ Thank you if you choose to listen to my advise
 
 but please don't judge me if you click 
 
-As I said don't click 
+As I said don't click .
